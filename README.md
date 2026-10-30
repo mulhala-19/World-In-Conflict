@@ -232,4 +232,4 @@ World in Conflict is available as a full free version, which includes all featur
 Don't miss out on the thrilling experience of World in Conflict. **Download the complete version now and lead your forces to victory!**
 
 ---
-**Last updated:** 2026-10-30 18:58:53 UTC
+**Last updated:** 2026-10-30 22:54:32 UTC
